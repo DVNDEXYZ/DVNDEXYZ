@@ -2,6 +2,6 @@
 - 👀 I'm interested in coding and hating myself
 - 🌱 I’m currently learning Web development and Python
 - 💞️ I’m not looking to collaborate, for now
-- 📫 How to reach me mailto:dekiro4567@gmail.com
+- 📫 How to reach me: dekiro4567@gmail.com
 - 😄 Pronouns: sim/bio/nte
 - ⚡ Fun fact: I'm in love with Spider-Man
